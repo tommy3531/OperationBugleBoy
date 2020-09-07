@@ -1,7 +1,7 @@
 ---
 title: November 5th 2020
 tags: ["event", "veteran-support"]
-cover: operationBugleBoyLogo.jpg
+cover: flag-picture.jpg
 author: operation bugle boy
 ---
 
