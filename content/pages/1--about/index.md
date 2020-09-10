@@ -3,16 +3,35 @@ title: About
 ---
 <re-img src="Chris_Jarboe.jpg" hovereffect=true></re-img>
 
-Operation Bugle Boy (OBB) is a community response to the September 11, 2001, terrorist attacks on our nation. The tragic events of that day awakened many in the Jefferson City, Missouri, area to a reality that our veterans and first responders already knew: we live in a dangerous world, and Americans cannot have safety and freedom without resolute individuals with the courage, skills, and willingness to protect us – even at the risk of losing their own lives. September 11th made many re-examine who our nation’s real heroes are.
+Operation Bugle Boy is very fortunate to be able to team up with the St. Martins Knights of Columbus to host a seminar titled **The Price of Freedom:  Our Gold Star Families**.  This special event will take place on the evening of Thursday, November 5, 2020, beginning at 6 p.m., at the St. Martins Knights of Columbus Hall.
 
-The mission of Operation Bugle Boy is to initiate and carry out activities and programs that honor and support our troops, veterans, and first responders, and help make us more appreciative of their sacrifices. OBB is a non-profit, all volunteer organization and 100% of the donations we receive go towards our mission. Thanks to the tremendous support of wonderful teachers and youth leaders in our area, we have many students involved in our mission. As Vietnam War veteran and OBB Vice-President Don Hentges says, “If our country does not inspire our youth to appreciate the sacrifices of those that defended the freedoms we enjoy, we are lost as a nation.” OBB encourages all Americans to do everything possible to help make our country a nation worthy of the great sacrifices that have been made, and continue to be made, on our behalf.
+With Jeremy Amick serving as the Master of Ceremonies, this seminar will feature brief presentations from a panel that will include local members of Gold Star Families.  Major General Hank Stratman, U.S. Army retired, will also share words of inspiration about why we must never forget the servicemen and women who made the ultimate sacrifice for our country.
 
-Since 2001, OBB has planned and carried out nearly 100 activities and programs involving thousands of students and hundreds of adult volunteers. These efforts have resulted in sending hundreds of care packages to our troops; donating thousands of dollars to worthy causes; encouraging students to write thousands of letters to our troops, veterans, and first responders; building a wheelchair-accessible smart home for a local Marine paralyzed by wounds sustained during a firefight in Afghanistan; organizing appreciation programs & dinners for local first responders; planning an annual seminar with a patriotic theme; and sponsoring our signature event, Veterans Appreciation Night, just before Veterans Day each fall.
+*Other Highlights & Information*
+In addition to a great program, this event will feature a Wall of Honor displaying photos of nearly 100 local heroes who have made the ultimate sacrifice for our country, and Leon’s Patriot Tree (please see more information about Leon’s Patriot Tree below).  *Coffee and pie will be served to those in attendance beginning at 6 p.m., with the seminar program starting at approximately 6:45 p.m.*
 
-Operation Bugle Boy’s success the past 19 years is a testament to the love and respect the heartland of America has for our veterans and first responders. We cannot adequately express how much we appreciate the wonderful support we have received from so many good, hard-working people, businesses, organizations, schools, and churches that make it possible for us to do what we do. We are profoundly humbled and grateful for their support.
+*Only 200 Tickets Available & They Are Free!*
+Tickets may be picked up at Legends Bank, 130 East McCarty Street, Jefferson City, MO, beginning September 11.  You must have a ticket to attend.  The event will also be live streamed if you are unable to attend in person.
 
-OBB has also sponsored many letter-writing activities to our troops, veterans, and first responders over the years, and thanks to the encouragement of great teachers, many wonderful letters have been written by area children. This is an excerpt from a letter written to our troops serving in the Middle East by Cheryl, a local seventh grader, in the fall of 2003:
+Abraham Lincoln once said, “A nation that does not honor its heroes will not long endure.”  Operation Bugle Boy feels the same way about our Gold Star Families.  **Please attend The Price of Freedom:  Our Gold Star Families** and help make sure that we as a community never forget the legacy of the heroes, and their families, who are most responsible for the freedoms we enjoy.
 
-Every day as I put my hand across my heart and say the Pledge of Allegiance, my eyes are filled with tears knowing the proud and elite fighting forces of our country have risked their lives for my sake and others. I know that America is not perfect, but with your help we are one step closer. Tonight, as I get on my hands and knees and look up to the stars and pray, I will remember to ask God to bless you.
+Coffee & Pie Reception begins at 6 p.m.!
+
+Leon’s Patriot Tree
+The Price of Freedom:  Our Gold Star Families Seminar will provide the opportunity to support local military families who need help by donating items from the suggested list below and/or making a monetary donation.  At this event, donations will be placed under a patriotically decorated Christmas tree called Leon’s Patriot Tree in honor of Marine Lance Corporal Leon Deraps who died fighting for us in Iraq in 2006.  These donations will be given to the Mid-MO Family PX food pantry, a volunteer organization that serves all branches of military families in our area who need help.  For monetary donations, please make checks out to:  Leon’s Patriot Tree.
+
+•	Diapers
+•	Soups
+•	Baby Wipes
+•	Canned Vegetables
+•	Personal Hygiene Items
+•	Peanut Butter & Jelly
+•	Macaroni & Cheese
+•	Non-Perishable Foods
+•	Breakfast Cereals
+•	Christmas Toys
+
+I heard the voice of the Lord saying, “Whom shall I send, and who will go for Us?”  Then I said, “Here am I.  Send Me!” – Isaiah 6:8
+
 
 <re-icons></re-icons>
