@@ -1,5 +1,5 @@
 ---
-title: November 5th 2020
+title: November 5, 2020
 tags: ["event", "veteran-support"]
 cover: flag-picture.jpg
 author: operation bugle boy
@@ -7,8 +7,6 @@ author: operation bugle boy
 
 If you are not able to attend in person Operation Bugle Boy will stream the event
 [LIVE LINK](https://us02web.zoom.us/meeting/register/tZYsc-ugrTktG9SEwfDAjaQozijNX8q8Nbvn)
-
-Thursday, November 5th 2020 Operation BugleBoy is very fortunate to be able to team up with St.Martins Knights of Columbus to host a seminar titled, "The Price of Freedom: Out Gold Star Families".  This special even will take place on the evening of Thursday, November 5th 2020 at 6PM, at the St.Martines Knights of Columbus Hall.
 
 Operation Bugle Boy is very fortunate to be able to team up with the St. Martins Knights of Columbus to host a seminar titled The Price of Freedom:  Our Gold Star Families.  This special event will take place on the evening of Thursday, November 5, 2020, beginning at 6 p.m., at the St. Martins Knights of Columbus Hall.
 
@@ -36,7 +34,7 @@ The Price of Freedom:  Our Gold Star Families Seminar will provide the opportuni
 1. Diapers
 2. Soups			
 3. Baby Wipes
-4. Canned Vetetables		
+4. Canned Vegetables		
 5. Personal Hygiene Items
 6. Peanut Butter & Jelly 		
 7. Macaroni & Cheese
