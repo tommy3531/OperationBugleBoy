@@ -20,16 +20,16 @@ Coffee & Pie Reception begins at 6 p.m.!
 Leon’s Patriot Tree
 The Price of Freedom:  Our Gold Star Families Seminar will provide the opportunity to support local military families who need help by donating items from the suggested list below and/or making a monetary donation.  At this event, donations will be placed under a patriotically decorated Christmas tree called Leon’s Patriot Tree in honor of Marine Lance Corporal Leon Deraps who died fighting for us in Iraq in 2006.  These donations will be given to the Mid-MO Family PX food pantry, a volunteer organization that serves all branches of military families in our area who need help.  For monetary donations, please make checks out to:  Leon’s Patriot Tree.
 
-•	Diapers
-•	Soups
-•	Baby Wipes
-•	Canned Vegetables
-•	Personal Hygiene Items
-•	Peanut Butter & Jelly
-•	Macaroni & Cheese
-•	Non-Perishable Foods
-•	Breakfast Cereals
-•	Christmas Toys
+1. Diapers
+2. Soups
+3. Baby Wipes
+4. Canned Vegetables
+5. Personal Hygiene Items
+6. Peanut Butter & Jelly
+7. Macaroni & Cheese
+8. Non-Perishable Foods
+9. Breakfast Cereals
+10. Christmas Toys
 
 I heard the voice of the Lord saying, “Whom shall I send, and who will go for Us?”  Then I said, “Here am I.  Send Me!” – Isaiah 6:8
 
