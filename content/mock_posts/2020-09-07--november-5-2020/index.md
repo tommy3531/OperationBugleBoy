@@ -18,17 +18,12 @@ With Jeremy Amick serving as the Master of Ceremonies, this seminar will feature
 
 In addition to a great program, this event will feature a Wall of Honor displaying photos of nearly 100 local veteran heroes who have made the ultimate sacrifice for our country, and Leon’s Patriot Tree (please see more information about Leon’s Patriot Tree below).  **Coffee and pie will be served to those in attendance beginning at 6 p.m., with the seminar program starting at approximately 6:45 p.m.**
 
-Only 200 
-*Tickets Available & They Are Free!*
-Tickets may be picked up at Legends Bank
-130 East McCarty Street, Jefferson City, MO
-Beginning September 11th
-*Must have ticket to attend*
+**Only 200 Tickets Available & They Are Free!**
+Tickets may be picked up at Legends Bank, 130 East McCarty Street, Jefferson City, MO, beginning September 11. You must have a ticket to attend. The event will also be live streamed if you are unable to attend in person.
 
 Abraham Lincoln once said, “A nation that does not honor its heroes will not long endure.”  Operation Bugle Boy feels the same way about our Gold Star Families.  Please attend The Price of Freedom:  Our Gold Star Families and help make sure that we as a community never forget the legacy of the heroes, and their families, who are most responsible for the freedoms we enjoy.
 
 **Coffee & Pie Reception begins at 6 p.m.!**
-
 
 *I heard the voice of the Lord saying, “Whom shall I send, and who will go for Us?”
 Then I said, “Here am I.  Send Me!”
